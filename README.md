@@ -47,7 +47,7 @@ Je kunt de lasagne 1 dag van tevoren maken tot en met het afbakken in de oven. B
 
 ### Uitgelichte ingredienten
 * Spinazie is erg gezond
-* Kaas is vooral erg lekker
+* Kaas is vooral heel lekker
 
 ### Voedingswaarden tabel
 | Voeding       | Waarde    |
